@@ -1,0 +1,2 @@
+situação de aprendizagem versionamento 
+
